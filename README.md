@@ -1,0 +1,1 @@
+# CRSQRChkPntCustDaily_KNS01
